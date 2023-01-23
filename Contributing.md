@@ -1,1 +1,0 @@
-Die Datei soll gelöscht werden.
